@@ -1,0 +1,1 @@
+![image](https://github.com/jimmy920414/-bmi-calculation/assets/93132071/ea49dc84-c819-49fc-be7f-d721535302d6)![image](https://github.com/jimmy920414/-bmi-calculation/assets/93132071/484908ed-2376-4289-8161-fd37bc53f551)
